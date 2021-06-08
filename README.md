@@ -2,4 +2,4 @@
 
 Yea i'm a dev.... 🖊️ A (stupid, idiot, and noob) dev 💻
 
-![Magikarp](/immagini_markdown/gatto.png)
+![Magikarp](https://ibb.co/09ysqCm)
